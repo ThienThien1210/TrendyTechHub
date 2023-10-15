@@ -1,1 +1,1 @@
-# TrendyTechHub---Trung-t-m-s-n-ph-m-c-ng-ngh-m-i-v-xu-h-ng-trong-ng-nh-i-n-t-
+# TrendyTechHub
